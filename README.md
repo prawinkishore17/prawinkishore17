@@ -1,3 +1,1 @@
-AI ML Engineer
-reach me: prawinkishore23@gmail.com
 Trust the process, you'll master the game...
